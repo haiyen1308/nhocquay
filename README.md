@@ -1,2 +1,0 @@
-# nhocquay
-smile
